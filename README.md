@@ -1,2 +1,2 @@
 # trest
-Fuck off
+Fuck off, poganiy kojaniy ubludok!
